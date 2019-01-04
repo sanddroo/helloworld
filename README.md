@@ -1,3 +1,3 @@
-#TAMPAN DAN BERANI\n
+#TAMPAN DAN BERANI
 emang iya
 
