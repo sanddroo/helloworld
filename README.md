@@ -1,2 +1,3 @@
-TAMPAN DAN BERANI
+#TAMPAN DAN BERANI
+emang iya
 
